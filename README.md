@@ -1,1 +1,0 @@
-# Zadanie-2-punkt-4
